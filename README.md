@@ -1,2 +1,4 @@
 # AGCCI_Class
-My first repository
+My AGCCI class was very educative
+wertzuiop987w34sedrtfgziosedcfvhbj
+dtrfjhkz7tzuio
